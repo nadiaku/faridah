@@ -1,0 +1,2 @@
+# faridah
+semoga semakin semangat
